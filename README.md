@@ -1,3 +1,3 @@
 # assets
 
-![front](https://github.com/aragle/assets/assets/62181222/590d7e44-84f5-40ca-841d-222153d4a947)
+![front](https://github.com/aragle/assets/assets/62181222/d6e84bce-2bb5-411f-b60c-69b1ed8045ef)
